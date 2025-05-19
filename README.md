@@ -7,7 +7,8 @@
 
 <p align="center">
         
-[rentry](https://rentry.co/monsterhunterwiids) -
+[rentry](https://rentry.co/monsterhunterwiids) 
 [ata](https://pinksm.atabook.org/)
+[prns.cc](https://pronouns.cc/@nargacuga)
 
 </p>  
