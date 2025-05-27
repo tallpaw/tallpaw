@@ -14,4 +14,4 @@
 ₊ [prns.cc](https://pronouns.cc/@nargacuga)
 
 </a>
-
+i'll fix ts later bruh
